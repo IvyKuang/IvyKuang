@@ -2,8 +2,8 @@
 # 💫 About Me:
 🙊I made a scrach game before.<br>      我之前做过scrach游戏<br>😍I am a baker and dancer.<br>      我会烘焙和跳舞<br>😉Like play Roblox too.<br>      喜欢玩Roblox
 
-This is me
-<img width="821" height="576" alt="image" src="https://github.com/user-attachments/assets/c40c31e2-4316-457b-a7d7-a2ae1f7c7424" />
+
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRMV92jLZ2EqinfARaD94uF02FDmBkQw6UOtA&s
 
 
 ❤️cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute cute❤️
